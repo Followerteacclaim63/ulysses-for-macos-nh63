@@ -1,4 +1,4 @@
-#  
+#  Ulysses for macOS best Script - reminders and database templates is the best Ulysses for macOS script, featuring reminders and database templates. Safe, efficient, and optimized
 
 
 
